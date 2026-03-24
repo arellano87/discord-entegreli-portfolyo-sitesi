@@ -1,6 +1,6 @@
 # **Bilgilendirme**
 
-> **`Hepinize Merhaba Arkadaşlar Bu Videoda Yeni Hazırladığımız Müzil Botunu Tanıttım,İyi Seyiler Diliyorum Tekrardan. Bu Tarz Videoların Devamı İçin Videoya Like ve Yorum Atmayı Unutmayın`**
+> **can sıkıntısına guns lol tarzi bisey yaptim benim hosuma gitti umarım sizinde hosunuza gider**
 
 > [Demo Site](https://arellanodev.42web.io) 
 
